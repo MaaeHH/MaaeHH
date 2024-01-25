@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MaaeHH
+- 👀 I’m interested in game development jobs
+- 🌱 I’m currently learning Unity and Unreal engine
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me: My email is hedmannhighmorem@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I like to do archery, I have a bow
